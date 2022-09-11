@@ -27,7 +27,7 @@ Presentation : https://drive.google.com/file/d/1iJnWZRyVGkfNSTsgf7qAwHlDoGD0ULzY
 4. Murad
 5. Vaibhav
 6. Zaki
-7. Krisnan 
+7. Krishan Kumar Safi 
 
 
 
